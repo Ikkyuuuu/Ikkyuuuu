@@ -2,7 +2,7 @@
 
 ### Interests  
 
-📐 **Math** : Algebra, Discrete Mathematics, Probability, Statistics, Game Theory  <br><br>
+📐 **Mathematics** : Algebra, Discrete Math, Probability, Statistics, Game Theory  <br><br>
 ⚛️ **Science** : Classical Physics, Modern Physics, Natural Selection, Evolution   <br><br>
 🧠 **Philosophy** : Metaphysics, Meaning of Life, Essence, Free Will, Morality  <br><br>
 
