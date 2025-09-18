@@ -1,4 +1,4 @@
-### Hi, I’m 👋
+### Hi, I’m Ikkyu 👋
 
 - 🔭 Science: classical physics, modern physics, natural selection, evolution  
 - 🧠 Philosophy: meaning of life, essence, free will, morality  
