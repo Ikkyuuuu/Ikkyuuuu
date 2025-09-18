@@ -1,7 +1,9 @@
-### Hi, I’m Ikkyu 👋
+## Hi there 👋  
 
-- 🔭 Science: classical physics, modern physics, natural selection, evolution  
-- 🧠 Philosophy: meaning of life, essence, free will, morality  
+### About me  
+
+⚛️ **Science** : Classical Physics, Modern Physics, Natural Selection, Evolution  
+🧠 **Philosophy** : Metaphysics, Meaning of Life, Essence, Free Will, Morality  
 
 
 > *"One must imagine Sisyphus happy."*  
