@@ -7,4 +7,4 @@
 🧠 **Philosophy** : Metaphysics, Meaning of Life, Essence, Free Will, Morality  <br><br>
 
 
-> *"One must imagine Sisyphus happy."* — *Albert Camus*  
+> *"One must imagine Sisyphus happy."* - *Albert Camus*  
