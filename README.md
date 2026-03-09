@@ -16,3 +16,7 @@
 
 
 
+### Publication
+📖 E-Book : [A Beginner's Guide to Philosophy](https://www.mebmarket.com/ebook-428506-%E0%B8%9B%E0%B8%A3%E0%B8%B1%E0%B8%8A%E0%B8%8D%E0%B8%B2%E0%B8%95%E0%B8%B0%E0%B8%A7%E0%B8%B1%E0%B8%99%E0%B8%95%E0%B8%81%E0%B8%89%E0%B8%9A%E0%B8%B1%E0%B8%9A%E0%B9%80%E0%B8%9E%E0%B8%B7%E0%B9%88%E0%B8%AD%E0%B8%99%E0%B9%80%E0%B8%A5%E0%B9%88%E0%B8%B2)
+
+📄 Research Paper : Currently Working On
